@@ -23,5 +23,4 @@ Please join me on this journey as I grow in this field and may it be fun for us 
 
 ## Contact information
 
-Please email me on
-"# winfrey_portfolio-"
+This contains how someone can contact me.
